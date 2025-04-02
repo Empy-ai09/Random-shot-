@@ -1,5 +1,5 @@
 # Random-shot📸
-"storage hp penuh"
+just dump
 
 ## Golden hour
 ![1000111799](https://github.com/user-attachments/assets/1d506c9c-1aeb-44ae-821c-19893686ef2a)
